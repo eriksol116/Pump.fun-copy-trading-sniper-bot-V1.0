@@ -22,6 +22,10 @@ As you know there are a lot of scam and unusable token in pumpfun, but if you kn
 
 
 
+https://github.com/user-attachments/assets/ababa2dd-3d92-43d9-95f4-ade29d33d7a1
+
+
+
 ## 💬Contact Me
 
 If you have any question or something, feel free to reach out me anytime via telegram, discord or twitter.
